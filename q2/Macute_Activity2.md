@@ -1,0 +1,1 @@
+![Macute Activity 2 Image](Macute_Activity2.jpg)
